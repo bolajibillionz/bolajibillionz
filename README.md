@@ -6,4 +6,4 @@
 
 💞️ I’m looking to collaborate on building solutions that solves real life problem.
 
-📫 You can reach me on Linkedln https://www.linkedin.com/in/bolajiadeladan/ or via mail at bolaji.adeladan@gmail.com@gmail.com
+📫 You can reach me on Linkedln https://www.linkedin.com/in/bolajiadeladan/ or via mail at bolaji.adeladan@gmail.com
